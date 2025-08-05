@@ -39,6 +39,6 @@ I'm always open to new opportunities and collaborations. Feel free to get in tou
 
 LinkedIn: [liz njenga]
 
-Email: [liznjenga77@gmail.com]
+Email: [liznjenga775@gmail.com]
 
 GitHub: [Mary-stack245]
